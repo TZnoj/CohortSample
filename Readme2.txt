@@ -2,7 +2,7 @@ This is william's first line
 No more be grieved at that which thou hast done:
 Roses have thorns, and silver fountains mud:
 Clouds and eclipses stain both moon and sun,
-And loathsome canker lives in sweetest bud.
+This should be a conflict
 All men make faults, and even I in this,
 Authorizing thy trespass with compare,
 Myself corrupting, salving thy amiss,
