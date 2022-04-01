@@ -2,7 +2,7 @@ This is william's first line
 No more be grieved at that which thou hast done:
 Roses have thorns, and silver fountains mud:
 Clouds and eclipses stain both moon and sun,
-conflict resolved
+The conflict was not resolved unfortunately
 All men make faults, and even I in this,
 Authorizing thy trespass with compare,
 Myself corrupting, salving thy amiss,
